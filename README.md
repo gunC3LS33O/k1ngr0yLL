@@ -1,4 +1,4 @@
-<h1>👑 Kingroyal - Krallara Layık Bahis Deneyimi! 👑</h1>
+<h1>👑 Kingroyal - Krallara Layık Bahis Deneyimi! 👑</h1> Sizde
 
 <a href="https://t.me/+vT5xydT9LLBlMzA0" title="Kingroyal Resmi Giriş">
   <img src="https://i.ibb.co/BtMhhf6/g-venligiris.jpg" alt="Kingroyal Premium Bahis" style="max-width: 100%; border: 3px solid #FFD700; border-radius: 15px; box-shadow: 0px 0px 20px rgba(255, 215, 0, 0.5);">
